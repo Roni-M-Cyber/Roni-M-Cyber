@@ -1,1 +1,1 @@
-Fighting for my life in Magshimim Cyber
+Succesfully survived Magshimim Cyber
